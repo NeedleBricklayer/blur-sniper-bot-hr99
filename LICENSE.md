@@ -1,4 +1,4 @@
-# 
+# NFT-optimized opensea sniper bot | liquidity-analysis + profit-calculator offers the most advanced opensea sniper bot, with liquidity-analysis and profit-calculator. Ideal for
 
 
 
